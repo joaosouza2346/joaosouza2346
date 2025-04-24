@@ -1,4 +1,4 @@
- olá me chamo joão
+👋 Olá, me chamo João!
 💻 Estagiário de T.I no MPRJ e futuro analista de sistemas.
 🎓 Cursando Análise e Desenvolvimento de Sistemas.
 👨‍💻 Desenvolvedor full stack em construção, movido a curiosidade.
