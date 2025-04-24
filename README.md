@@ -11,7 +11,9 @@
 🎃 Fã de filmes de terror — Halloween é clássico obrigatório.
 
 ☕ Café + código = rotina perfeita.
+
 meu linknedin: https://www.linkedin.com/in/jo%C3%A3o-pedro-de-souza-b457692a4/
+
 EMAIL: joaopedro.silva@mprj.mp.br
 
 
