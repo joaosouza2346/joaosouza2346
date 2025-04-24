@@ -1,9 +1,15 @@
 👋 Olá, me chamo João!
+
 💻 Estagiário de T.I no MPRJ e futuro analista de sistemas.
+
 🎓 Cursando Análise e Desenvolvimento de Sistemas.
+
 👨‍💻 Desenvolvedor full stack em construção, movido a curiosidade.
+
 🎮 Apaixonado por animes, games e tudo que envolve nerdices.
+
 🎃 Fã de filmes de terror — Halloween é clássico obrigatório.
+
 ☕ Café + código = rotina perfeita.
 
 
