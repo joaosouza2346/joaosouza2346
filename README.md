@@ -8,16 +8,16 @@
 
 🎮 Apaixonado por animes, games e tudo que envolve nerdices.
 
-🎃 Fã de filmes de terror — Halloween é clássico obrigatório.
+🎃 Fã de filmes de terror e Animes — Halloween é clássico obrigatório.
 
-☕ Café + código = rotina perfeita.
+☕ Café + gato + código = rotina perfeita.
 
 meu linknedin: https://www.linkedin.com/in/jo%C3%A3o-pedro-de-souza-b457692a4/
 
 EMAIL: joaopedro.silva@mprj.mp.br
 
+![postcard-1551_512](https://github.com/user-attachments/assets/bc28cd83-17fc-4892-b0c5-d918647c46de)
 
-![Uploading postcard-1551_512.gif…]()
 
 
 
