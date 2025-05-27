@@ -16,6 +16,8 @@ meu linknedin: https://www.linkedin.com/in/jo%C3%A3o-pedro-de-souza-b457692a4/
 
 EMAIL: joaopedro.silva@mprj.mp.br
 
+![postcard-1551_256](https://github.com/user-attachments/assets/5c046de8-50eb-48c4-97d3-420be146f967)
+
 
 
 
