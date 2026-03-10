@@ -1,6 +1,6 @@
 👋 Olá, me chamo João!
 
-💻 Estagiário de T.I no MPRJ e futuro analista de sistemas.
+futuro analista de sistemas.
 
 🎓 Cursando Análise e Desenvolvimento de Sistemas.
 
